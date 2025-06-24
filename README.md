@@ -1,7 +1,7 @@
 <h2>4K影视天堂官网，超高清影视资源免费在线观看|4K电影电视剧下载</h2>
 <p>4K影视小站是一个专注于提供高清4K影视资源的在线平台，致力于为用户提供丰富、高质量的影视内容。无论是电影、电视剧、动漫还是纪录片，用户都能在这里找到自己喜爱的内容。该网站以超清画质和流畅的观影体验为核心，通过先进的技术手段优化了用户的观影过程，让用户仿佛置身于影院之中。此外，4K影视小站还支持多种设备访问，包括电脑、手机和平板等，方便用户随时随地享受高质量的观影体验。</p>
 <p><strong>一键访问：</strong><a href="https://www.ggonav.com/sites/5821.html " target="_blank"><strong>4K影视最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>网站介绍</strong><br>4K影视小站是一个综合性的影视资源平台，其主要功能包括：</p>
 <ol>
